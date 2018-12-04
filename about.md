@@ -11,4 +11,4 @@ love anime and video game,  I am a weeb and a gamer. I also love hentai
 
 ### do not Contact me at
 
-[email@domain.com](mailto:htook8076@aurorak12.org)
+[htook8076@aurorak12.org](mailto:htook8076@aurorak12.org)
