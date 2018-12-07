@@ -3,7 +3,7 @@ layout: post
 title: meeting old and new friends
 ---
 
-![friends](/.jpg)
+![friends](/images/freinds.png)
 
 ## reuniting
 
